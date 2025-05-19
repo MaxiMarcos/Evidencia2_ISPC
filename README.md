@@ -8,4 +8,4 @@ Participantes:
 3. Fernanda Velez  
 4. Salma Ceballos  
 5. Sheila Abigail Diaz  
-6. Maximiliano Marcos
+6. Maximiliano Abel Marcos
